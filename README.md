@@ -1,1 +1,1 @@
-steik itebe
+ooga booga
